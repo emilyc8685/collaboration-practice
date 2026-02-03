@@ -4,9 +4,9 @@
 #### 4
 #### 5 mueller
 #### 6
-#### 7
+#### 7 Emily was here again!
 #### 8
-#### 9 github is really goodgit
+#### 9 GitHub is awsome
 #### 10
 #### 11
 #### 12
